@@ -1,0 +1,1 @@
+# ikt-git-csapatmunka-alapok
